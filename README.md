@@ -150,9 +150,9 @@
 
 ## :trophy: 결과물
 
-- [중간 발표 자료](https://pusanackr-my.sharepoint.com/:b:/g/personal/dms5474_pusan_ac_kr/EdYfrfbSQK1AmbHjr76aG4ABV8LxUfg7SpzbedS7987-tQ?e=ZzXzLH)
-- [최종 발표 자료](https://pusanackr-my.sharepoint.com/:b:/g/personal/dms5474_pusan_ac_kr/Ed9kCHgnj-NNkQkg6hxphIoBCc6rLg9zOEChNYiSMZ2ejA?e=L5T4Al)
-- [UCC](https://pusanackr-my.sharepoint.com/:v:/g/personal/dms5474_pusan_ac_kr/EZwTi-auz_lMvhtIYoo9W30BCF7K1JFNEK_eUiw7RzHyBg?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0RpcmVjdCJ9fQ&e=JqfjY2)
+- [중간 발표 자료](https://drive.google.com/file/d/1HFNwo7lHW85fRsJFJW48vq73_kQEnRpQ/view?usp=sharing)
+- [최종 발표 자료](https://drive.google.com/file/d/1SAf3oBKZLmWy3u49IUph8HGWM52VC65J/view?usp=sharing)
+- [UCC](https://drive.google.com/file/d/1Vt0VbR9wwcCZyqED3fDHX-IJ20jPfTLx/view?usp=sharing)
 
 <br/>
 
